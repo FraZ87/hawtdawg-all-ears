@@ -1,6 +1,7 @@
-## Where do I list my favorite treats?
+## Photos are nice and all, but I don’t see very well. How can I smell the other dogs?
  
+We regret that we are unable to offer our customers smell-o-vision at this time. 
 
-Open the Hawt Dawg app and click on "Edit Profile".
+As soon as human technology catches up to dog noses, we’ll be sure to add a scent feature to the app. 
 
-Scroll down
+In the meantime, why not meet up at the dog park to get a whiff of your new friend?
